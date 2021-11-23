@@ -1,0 +1,2 @@
+# Disabled-access
+I would like all public transport to be more receptive to the needs of disabled people. A lot of us don't get around in wheelchairs. We have mobility scooters but are stuck in the areas we live (unless you're lucky enough to own a van with a tail-lift to take your scooter elsewhere. A mobility scooter gives you freedom from having someone push you around which isn't always possible to get because people have their own commitments/lives.  
